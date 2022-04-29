@@ -13,3 +13,5 @@ Une personne, bénie de lumière, apparut devant lui. Meme si l'on ne voyait pas
 Surpris Adrien ne compris pas ce qu'il se passait mais désirant tout de même comprendre ce qu'il se passsait il demanda " Choisis ? Moi ? Pourquoi ? Et Où suis-je ?"
 La personne en face rit. Elle enchaina avec "Ne sois pas pressé Adrien, tout ne fait que commencer, maintenant tu dois te lancer, ta destiné est toute tracé ! Ahahah !"
 Et ainsi Adrien se retrouva dans un village au fond d'une campagne.C'est là que l'aventure commenca.
+
+Ne sachant pas trop quoi faire il se promena dans le village en espérant y rencontrer quelqu'un qui pourrait lui dire où il se trouve mais rien, le village semblait désert..
